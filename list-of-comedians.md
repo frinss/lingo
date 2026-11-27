@@ -1,0 +1,90 @@
+# List of comedians
+
+Alphabetically sorted (there is a much larger list of comedians on [Wikipedia](https://en.wikipedia.org/wiki/List_of_comedians)):
+
+- [Amber Ruffin](https://www.youtube.com/results?gl=US&search_query=Amber+Ruffin)
+- [Amy Schumer](https://www.youtube.com/results?gl=US&search_query=Amy+Schumer)
+- [Andrew Dice Clay](https://www.youtube.com/results?gl=US&search_query=Andrew+Dice+Clay)
+- [Andy Daly](https://www.youtube.com/results?gl=US&search_query=Andy+Daly)
+- [Andy Richter](https://www.youtube.com/results?gl=US&search_query=Andy+Richter) asks "The Three Questions."
+- [Anthony Jeselnik](https://www.youtube.com/results?gl=US&search_query=Anthony+Jeselnik), one of the members of the Titans of Comedy. » [Thoughts and Prayers](https://www.youtube.com/watch?v=GiQfb-FZMUI&list=PLqSGXD25g6PspFfkBG8xT-Kx_8wq5xd7y)
+- [Bert Kreischer](https://www.youtube.com/results?gl=US&search_query=Bert+Kreischer+the+machine), "The Machine," is "the top partyer at the Number One Party School in the country." » [YouTube channel](https://www.youtube.com/@bertkreischer)
+- [Bill Burr](https://www.youtube.com/results?gl=US&search_query=Bill+Burr)
+- [Bill Hader](https://www.youtube.com/results?gl=US&search_query=Bill+Hader)
+- [Bill Maher](https://www.youtube.com/results?gl=US&search_query=Bill+Maher) » [billmaher.com](https://billmaher.com)
+- [Bob Newhart](https://www.youtube.com/results?gl=US&search_query=Bob+Newhart)
+- [Bob Odenkirk](https://www.youtube.com/results?gl=US&search_query=Bob+Odenkirk)
+- [Bob Zany](https://www.youtube.com/results?gl=US&search_query=Bob+Zany)
+- [Brad Williams](https://www.youtube.com/results?gl=US&search_query=Brad+Williams) is frequently confused with Wee Man from Jackass because of their similar appearance.
+- [Bret Ernst](https://www.youtube.com/results?gl=US&search_query=Bret+Ernst)
+- [Cameron Esposito](https://www.youtube.com/results?gl=US&search_query=Cameron+Esposito)
+- [Carl Tart](https://www.youtube.com/results?gl=US&search_query=Carl+Tart)
+- [Carmen Christopher](https://www.youtube.com/results?gl=US&search_query=Carmen+Christopher) is killing it (in a short).
+- [Carrot Top (Scott Thompson)](https://www.youtube.com/results?gl=US&search_query=Carrot+Top) is a prop comedian.
+- [Chelsea Peretti](https://www.youtube.com/results?gl=US&search_query=Chelsea+Peretti)
+- [Chris Gethard](https://www.youtube.com/results?gl=US&search_query=Chris+Gethard) » [chrisgeth.com](https://chrisgeth.com)
+- [Chris Rock](https://www.youtube.com/results?gl=US&search_query=Chris+Rock)
+- [Christi Chiello](https://www.youtube.com/results?gl=US&search_query=Christi+Chiello) is a roastmaster.
+- [Conan O'Brien](https://www.youtube.com/results?gl=US&search_query=Conan+O'Brien) really  [needs a friend](https://en.m.wikipedia.org/wiki/Conan_O%27Brien_Needs_a_Friend)
+- [Dana Carvey](https://www.youtube.com/results?gl=US&search_query=Dana+Carvey) won a Primetime Emmy Award from five consecutive nominations.
+- [Dane Cook](https://www.youtube.com/results?gl=US&search_query=Dane+Cook)
+- [Daniel Tosh](https://www.youtube.com/results?gl=US&search_query=Daniel+Tosh)
+- [Don Rickles](https://www.youtube.com/results?gl=US&search_query=Don+Rickles)
+- [Fred Armisen](https://www.youtube.com/results?gl=US&search_query=Fred+Armisen)
+- [Gabriel Iglesias](https://www.youtube.com/results?gl=US&search_query=Gabriel+Iglesias) is not fat but fluffy.
+- [George Carlin](https://www.youtube.com/results?gl=US&search_query=George+Carlin)
+- [Gilbert Gottfried](https://www.youtube.com/results?gl=US&search_query=Gilbert+Gottfried)
+- [Groucho Marx](https://www.youtube.com/results?gl=US&search_query=Groucho+Marx)
+- [Ismo](https://www.youtube.com/results?gl=US&search_query=Ismo)
+- [Jack Benny](https://www.youtube.com/results?gl=US&search_query=Jack+Benny) portrayed "that great, great Polish actor Joseph Tura."
+- [James Corden](https://www.youtube.com/results?gl=US&search_query=James+Corden) battled Adam Lambert to become Queen frontman.
+- [Jason Mantzoukas](https://www.youtube.com/results?gl=US&search_query=Jason+Mantzoukas)
+- [Jeff Ross](https://www.youtube.com/results?gl=US&search_query=Jeff+Ross), the "Roastmaster General."
+- [Jen Kirkman](https://www.youtube.com/results?gl=US&search_query=Jen+Kirkman)
+- [Jim Gaffigan](https://www.youtube.com/results?gl=US&search_query=Jim+Gaffigan)
+- [Jimmy Fallon](https://www.youtube.com/results?gl=US&search_query=Jimmy+Fallon) impersonates Neil Young, and Bruce Springsteen, among others.
+- [Jimmy Kimmel](https://www.youtube.com/results?gl=US&search_query=Jimmy+Kimmel)
+- [John Mulaney](https://www.youtube.com/results?gl=US&search_query=John+Mulaney)
+- [Jordan Klepper](https://www.youtube.com/results?gl=US&search_query=Jordan+Klepper)
+- [Julia Louis-Dreyfus](https://www.youtube.com/results?gl=US&search_query=Julia+Louis+Dreyfus)
+- [Kathy Griffin](https://www.youtube.com/results?gl=US&search_query=Kathy+Griffin) » [kathygriffin.com](https://kathygriffin.com)
+- [Kevin Hart](https://www.youtube.com/results?gl=US&search_query=Kevin+Hart)
+- [Kevin Smith](https://www.youtube.com/results?gl=US&search_query=Kevin+Smith)
+- [Kristen Schaal](https://www.youtube.com/results?gl=US&search_query=Kristen+Schaal)
+- [Margaret Cho](https://www.youtube.com/results?gl=US&search_query=Margaret+Cho)
+- [Maria Bamford](https://www.youtube.com/results?gl=US&search_query=Maria+Bamford)
+- [Mike Hanford](https://www.youtube.com/results?gl=US&search_query=Mike+Hanford) plays John Lennon after coming back to life in 1984.
+- [Mo Welch](https://www.youtube.com/results?gl=US&search_query=Mo+Welch)
+- [Natasha Leggero](https://www.youtube.com/results?gl=US&search_query=Natasha+Leggero)
+- [Nate Bargatze](https://www.youtube.com/results?gl=US&search_query=Nate+Bargatze)
+- [Nick Kroll](https://www.youtube.com/results?gl=US&search_query=Nick+Kroll)
+- [Norm Macdonald](https://www.youtube.com/results?gl=US&search_query=Norm+Macdonald)
+- [Ophira Eisenberg](https://www.youtube.com/results?gl=US&search_query=Ophira+Eisenberg)
+- [Oscar Montoya](https://www.youtube.com/results?gl=US&search_query=Oscar+Montoya+comedian)
+- [Patton Oswalt](https://www.youtube.com/results?gl=US&search_query=Patton+Oswalt)
+- [Paul F. Tompkins](https://www.youtube.com/results?gl=US&search_query=Paul+F.+Tompkins) » [paulftompkins.com](https://paulftompkins.com) » [YouTube channel](https://www.youtube.com/channel/UCjurejnWKaS_Qpp10rz_Z6A)
+- [Paul Scheer](https://www.youtube.com/results?gl=US&search_query=Paul+Scheer)
+- [Rachel Feinstein](https://www.youtube.com/results?gl=US&search_query=Rachel+Feinstein)
+- [Ralphie May](https://www.youtube.com/results?gl=US&search_query=Ralphie+May)
+- [Rita Rudner](https://www.youtube.com/results?gl=US&search_query=Rita+Rudner)
+- [Rosebud Baker](https://www.youtube.com/results?gl=US&search_query=Rosebud+Baker)
+- [Ryan George](https://www.youtube.com/results?gl=US&search_query=Ryan+George) nails it when he says it's "super easy, barely an inconvenience."
+- [Sacha Baron Cohen](https://www.youtube.com/results?gl=US&search_query=Sacha+Baron+Cohen)
+- [Sarah Silverman](https://www.youtube.com/results?gl=US&search_query=Sarah+Silverman)
+- [Scott Aukerman](https://www.youtube.com/results?gl=US&search_query=Scott+Aukerman)
+- [Sid Caesar](https://www.youtube.com/results?search_query=Sid+Caesar)
+- [Stephen Colbert](https://www.youtube.com/results?gl=US&search_query=Stephen+Colbert)
+- [Steve Carrell](https://www.youtube.com/results?gl=US&search_query=Steve+Carell)
+- [Steve Martin](https://www.youtube.com/results?gl=US&search_query=Steve+Martin) is a virtuoso banjo player.
+- [Steven Wright](https://www.youtube.com/results?gl=US&search_query=Steven+Wright) won the Oscar (with Dean Parisot) for the 1988 short film "The Appointments of Dennis Jennings."
+- [Thomas Middleditch](https://www.youtube.com/results?gl=US&search_query=Thomas+Middleditch)
+- [Tig Notaro](https://www.youtube.com/results?gl=US&search_query=Tig+Notaro) is known for her deadpan comedy.
+- [Tom Segura](https://www.youtube.com/results?gl=US&search_query=Tom+Segura)
+- [Tracy Morgan](https://www.youtube.com/results?gl=US&search_query=Tracy+Morgan)
+- [Trevor Noah](https://www.youtube.com/results?gl=US&search_query=Trevor+Noah)
+- [Wayne Brady](https://www.youtube.com/results?gl=US&search_query=Wayne+Brady)
+- [Whitney Cummings](https://www.youtube.com/results?gl=US&search_query=Whitney+Cummings)
+- [Will Ferrell](https://www.youtube.com/results?gl=US&search_query=Will+Ferrell) is an actor, comedian, producer, writer, and businessman.
+- [Woody Allen](https://www.youtube.com/results?gl=US&search_query=Woody+Allen+comedian) "shot a moose once" in the 60s.
+- [Zac Amico](https://www.youtube.com/results?gl=US&search_query=Zac+Amico)
+- [Zach Galifianakis](https://www.youtube.com/results?gl=US&search_query=Zach+Galifianakis)
